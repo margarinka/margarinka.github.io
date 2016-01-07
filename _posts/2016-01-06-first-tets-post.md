@@ -1,10 +1,11 @@
 ---
-published: false
+published: true
 layout: post
 title: First Test Post
 date: "2016-01-06 22:20:37 -0800"
 categories: jekyll update
 ---
+
 
 ## A New Post
 
