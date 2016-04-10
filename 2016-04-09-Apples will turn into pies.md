@@ -44,16 +44,24 @@ But I remember of them every time when I wash an apple, I peel an apple, I cut a
 - 2 tbsp brown sugar
 - 1 tsp ground cinnamon
 
-In a large skillet, heat 2 tbsp of butter and add the thin strips of apples. Stir and cover for 5 minutes, until apples become slightly soft. Set aside.
-To assemble:
-Preheat the oven at 175C/350F.
-Line the dough into a tart tray. Pierce it with a fork. Bake for 20-25 minutes until golden-brown.
-Pour the applesauce above the crust and lay out the apple slices creating a rose, starting by the outside part of the pie and ending in the middle.
-Drizzle 2 tbsp of brown sugar, 1 tsp of ground cinnamon and add 3 tbsp of cubed butter.
-Bake for 45 min-60 min until lightly browned.
-Important notes:
-To transfer the crust from your work surface to your baking pan, delicately roll it around your rolling pin and unroll over the pan/ or roll the dough directly to parchment paper and turn it face-down when is ready for the pan.
-Once you lined your baking pan with the crust, place it in the freezer for 30 minutes before baking. This will prevent it from shrinking or getting out of shape while baking.
-For pre-baking the crust without the filling, cut out a sheet of parchment paper, place it over the crust and cover with dry beans to pre-bake.
-You can use apricot preserves instead of applesauce ( approx. 300 g). 
+1. In a large skillet, heat 2 tbsp of butter and add the thin strips of apples.
+2. Stir and cover for 5 minutes, until apples become slightly soft. Set aside.
+
+##To assemble:
+
+1. Preheat the oven at 175C/350F.
+2. Line the dough into a tart tray. Pierce it with a fork. Bake for 20-25 minutes until golden-brown.
+3. Pour the applesauce above the crust and lay out the apple slices creating a rose, starting by the outside part of the pie and ending in the middle.
+4. Drizzle 2 tbsp of brown sugar, 1 tsp of ground cinnamon and add 3 tbsp of cubed butter.
+5. Bake for 45 min-60 min until lightly browned.
+
+##Important notes:
+
+1. To transfer the crust from your work surface to your baking pan, delicately roll it around your rolling pin and unroll over the pan/ or roll the dough directly to parchment paper and turn it face-down when is ready for the pan.
+2. Once you lined your baking pan with the crust, place it in the freezer for 30 minutes before baking. This will prevent it from shrinking or getting out of shape while baking.
+3. For pre-baking the crust without the filling, cut out a sheet of parchment paper, place it over the crust and cover with dry beans to pre-bake.
+4. You can use apricot preserves instead of applesauce (approx. 300 g). 
+
+
+ 
 
